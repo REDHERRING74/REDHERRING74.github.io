@@ -1,0 +1,2 @@
+# REDHERRING74.github.io
+BLOG
